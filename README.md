@@ -1,2 +1,2 @@
 # Profressor_Tanghuru
-WTF
+☆교수님 탕후루 만들기☆
